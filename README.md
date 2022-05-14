@@ -1,4 +1,4 @@
-# Web tán tỉnh :))
+# Tán em :))
 
-Tôi viết cho vui thôi chứ crush của các ông có đổ hay không thì tôi không biết :))
+Một là em đổ, hai là nhà em đổ :))
 
